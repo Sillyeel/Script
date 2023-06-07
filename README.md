@@ -1,4 +1,4 @@
-# 🖼
+# 
 wangbin.individ@gmail.com
 
 Contact me via <a href="https://t.me/Sillyeel">Telegram</a>
